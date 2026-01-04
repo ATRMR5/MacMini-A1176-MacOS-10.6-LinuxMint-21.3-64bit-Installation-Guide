@@ -1,0 +1,1 @@
+# MacMini-A1176-MacOS-10.6-LinuxMint-21.3-64bit-Installation-Guide
